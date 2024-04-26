@@ -1,3 +1,3 @@
 # Joa
 ### **Machado** 98 🪓
-![](https://i.ytimg.com/vi/O23T052RqMA/maxresdefault.jpg)
+![](https://media.tenor.com/Yy-59PB5TNgAAAAM/drift-fusc%C3%A3o2.gif)
